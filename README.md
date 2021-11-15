@@ -1,16 +1,20 @@
-### Hi there 👋
+### Assalamualaikum!!!! 
+Welcome To My NOOB Profile. T1M3-30ME is here to help you 👋
 
-<!--
-**T1M3-30M3/T1M3-30M3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+WHO AM I??
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🙂🙂Basicly I am Student And I want to cyber Security Expert And WHITE HAT HACKER.
+🇧🇩🇧🇩Come from Bangladesh.
+🙂🙃 Muslim
+🤫🤫Learning to programming and cyber security 
+
+
+<----WHITE HAT FOR OUR COUNTRY🛡️🛡️🛡️!!! 
+     BlACK HAT FOR OUR ENIMY⚔️⚔️⚔️------>
+
+Hope try to learn from me!!
+
+Assalamualaikum!! 
+
+HAVE A NICE DAY🛡️🛡️
