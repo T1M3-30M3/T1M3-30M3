@@ -1,5 +1,5 @@
 ### Assalamualaikum!!!! 
-Welcome To My NOOB Profile. T1M3-30ME is here to help you 👋
+Welcome To My NOOB Profile. T1M3-30M3 is here to help you 👋
 
 
 WHO AM I??
